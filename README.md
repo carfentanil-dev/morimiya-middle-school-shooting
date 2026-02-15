@@ -1,0 +1,1 @@
+# morimiya-middle-school-shooting
